@@ -6,7 +6,7 @@
   ✦
 
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=FCF6E6&width=435&lines=Goodbye%2C+Andrew...;One+Day+we+Wont+Stargaze+At+The+Rooftop.;.....;)](https://git.io/typing-svg)
+  '𝑇𝑎𝑘𝑒 𝑜𝑢𝑡 𝑡ℎ𝑒 𝑎𝑥𝑒 𝑜𝑟 𝑑𝑖𝑒 𝑎𝑙𝑜𝑛𝑒!'
   
 ![image alt](Untitled1089_20260201022517.png) 
 
@@ -36,7 +36,9 @@
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
 
 
-Ivan fictionkin
+𝑊𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡 𝑤𝑖𝑡ℎ 𝑚𝑒 𝑏𝑢𝑡 𝑡𝑜𝑜 𝑆ℎ𝑦? 𝑇𝑟𝑦 𝑡𝑜-
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=FCF6E6&width=435&lines=HugMe!%2C+h!;Interact+With+Me+In+Any+ways!+I+Dont+Bite!.;.....;)](https://git.io/typing-svg)
 
 
 ✦
