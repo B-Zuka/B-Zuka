@@ -36,7 +36,7 @@
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
 
 
-I just know someone is looking at my account without me knowing... yeah you.. yes you... the one who's reading this... yeah... I see you.. heh. 
+Ivan fictionkin
 
 
 ✦
