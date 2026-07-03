@@ -17,9 +17,8 @@ src="https://github.com/WeepingArchangel/WeepingArchangel/blob/0cb5e27dda5993865
 <img width="11%" src="https://github.com/WeepingArchangel/WeepingArchangel/blob/d8b1d8121a49b2179b5ec39f2aabb08d693a3842/Tumblr_l_557624406006501.gif" />
 
 
-@eggchannie- hiii regect hii
-
-@Pixelbrickz- hiii moe hiii
+@eggchannie- pak you bradar
+@Pixelbrickz- pak your billons pak you rockstar games
  
 <img  width="90%"
 src="Tumblr_l_98390951481943.jpg" />
